@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **1508239360@qq.com**
 
-- ⚡ Fun fact **I think I'm funny.**
+- ⚡ Fun fact **我是游戏主播**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
